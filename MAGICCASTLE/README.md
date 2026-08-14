@@ -1,6 +1,6 @@
 **Game name:**
 
-Magic Castle (Dec 2025)
+Magic Castle (Japan) [Dec 2025]
 
 **Game ID:**
 
